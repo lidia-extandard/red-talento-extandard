@@ -1,0 +1,1 @@
+# red-talento-extandard
